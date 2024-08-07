@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **nobrugonferr@gmail.com**
 
-- 📄 Know about my experiences [Data analysis, Economics, Accounting](Data analysis, Economics, Accounting)
+- 📄 Know about my experiences Data analysis, Economics, Accounting.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
